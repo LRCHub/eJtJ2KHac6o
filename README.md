@@ -1,0 +1,50 @@
+# Kep1er – Don't Lose Your Smile
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+初めて会った日を
+君は覚えているかな？
+日を閉じてみれば
+いつだって浮かんでくる笑顔
+
+夜空に瞬く星のように そっと照らすから
+永遠に消えない愛で ずっと見守って
+Baby, don't lose your smile
+
+Love your smile, smile
+Love your smile, smile
+Uh, uh, I'm gonna make you shine
+君のために 強く光り続けるよ
+Baby, don't lose your smile
+
+Don't lose your smile
+Oh, don't lose your smile
+この世界で出会えたことが
+なにより宝物
+
+どんなに離れた場所だって 心はひとつに
+繋がってるよ いつもずっと忘れないで
+Baby, don't lose your smile
+
+Love your smile, smile
+Love your smile, smile
+Uh, uh, oh, singing la-la-la
+君に届くように 歌い続けるよ
+Baby, don't lose your smile
+
+Oh woah, you're my love, うつむく日も
+導いてくれた, always smile, ah (ah, yeah)
+
+どんなに世界が変わっても 君を照らすから (変わっても, yeah, shine the light)
+永遠に消えない愛で いつも守るから (るから)
+Baby, don't lose your smile (don't lose your smile)
+
+Love your smile, smile
+Love your smile, smile
+Hah, hah, woah, never lose your smile (oh, ooh, woah)
+
+君にもらった光
+両手いっばい 抱きしめ進むの
+Oh, 未来へ, ooh
+```
